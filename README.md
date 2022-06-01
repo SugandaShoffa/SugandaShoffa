@@ -4,7 +4,7 @@
 - 💞️ I’m looking to world
 - bilang pada saya
 
-Can't you help me please?
+
 
 <!---
 SugandaShoffa/SugandaShoffa
